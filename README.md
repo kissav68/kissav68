@@ -1,7 +1,7 @@
 - 👋 kissavtv.com
 - 👀 永久免费地址 https://www.kissavtv.com
 - 🌱 免费无限观看免翻墙地址  
-- 😄 https://0af6.nclsckft.com
+- 😄 https://e8ac7.nghmurg.cc
 - 💞️ https://b637.reiplqe.com
 - 📫 发送任意信件到回家邮箱 yeqi451@gmail.com
  
